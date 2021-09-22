@@ -10,4 +10,4 @@ Tutorial Video is Available On Sulphur Channel.
 
 Key Activation is Done By Adarsh.
 
-Join - https://t.me/onlysulphur For Details And Usage Guide
+https://t.me/onlysulphur
