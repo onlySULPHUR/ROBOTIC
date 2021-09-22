@@ -8,6 +8,4 @@ BGMI,Global and Korea.
 
 Tutorial Video is Available On Sulphur Channel.
 
-Key Activation is Done By Adarsh.
-
 https://t.me/onlysulphur
